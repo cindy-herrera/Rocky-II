@@ -6,3 +6,7 @@ Eventually Rocky realizes his spending habits can't be long-lived and ends up se
 
 Rocky's poor education is highlighted when he can't read the cue cards well enough for the commercial shoots.
 Also, a part of the movie that made me cringe. Makes you feel bad, man.
+
+
+Something to note is the color of Apollo's boxing shorts during the fight. They are the same colors that Rocky wore when he lost the first fight.
+The color on Rocky short's used on an ad were wrongly colored and could have hinted at things not going in Rocky's favor.
