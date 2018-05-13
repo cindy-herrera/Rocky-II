@@ -9,3 +9,5 @@ Rocky's poor education is highlighted when he can't read the cue cards well enou
 MOVIE DETAILS:
 Something to note is the color of Apollo's boxing shorts during the fight. They are the same colors that Rocky wore when he lost the first fight.
 The color on Rocky short's used on an ad were wrongly colored and could have hinted at things not going in Rocky's favor.
+
+TESTING TO SEE IF THIS WORKS
