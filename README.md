@@ -1,10 +1,8 @@
 # Rocky-II
 
+This sequel left me feeling unsatisfied and squirming in my seat from Rocky's less-than-charming character development. Right off the bat, the movie starts by showing off Rocky's hoarded wealth and extravagent spending, which paints him as a changed man from his introduction in the previous movie. Adrian, however seems to be about the same, with her passive demeanor and mute personality. Still can't figure out the romance between this couple.
 
-Right off the bat, one of the very first things that is different is Rocky's spending. The prize money must have gotten to his head, though Adrian seems to have remained the same with her passiveness and doesn't say no to his big spending.
-Eventually Rocky realizes his spending habits can't be long-lived and ends up selling his car to his brother-in-law to help keep himself and Adrian afloat.
-
-Rocky's poor education is highlighted when he can't read the cue cards well enough for the commercial shoots. This scene is also one of the parts of the movies that made me cringe. Makes you feel bad, man.
+Though Rocky is now rolling in the big bucks, or was, he can't hide from his underprivelaged upbringing when he struggles to read cue cards for a commercial shoot. He grows frustrated, I cringe, and the scene cuts.
 
 MOVIE DETAILS:
 Something to note is the color of Apollo's boxing shorts during the fight. They are the same colors that Rocky wore when he lost the first fight.
